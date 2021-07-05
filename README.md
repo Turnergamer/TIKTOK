@@ -1,0 +1,3 @@
+# TIKTOK
+UPDATE UPDATES AND STUF
+https://discord.gg/Mr9KSRsjuH
